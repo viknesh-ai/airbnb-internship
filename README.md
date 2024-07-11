@@ -1,3 +1,1 @@
-# airbnb-internship
-
-https://hashnode.com/continue-with-magic-link/e668d68d-4e45-427b-b71b-61ddaa6a4582
+https://hashnode.com/continue-with-magic-link/8c9d1b33-7338-4458-aa43-f6696b918a09
